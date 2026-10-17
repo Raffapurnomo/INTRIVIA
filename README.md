@@ -10,3 +10,6 @@ Intrivia mengajarkan kita menjadi mahasiswa.
 
 ## Kesan Pesan Cluster 10 Sejauh Ini 
 Cluster 10 asik, enjoy, gocekkk 
+
+## Harapan Kuliah
+Jago ngodink
